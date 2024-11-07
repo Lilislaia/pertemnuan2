@@ -1,1 +1,0 @@
-# pertemnuan2
